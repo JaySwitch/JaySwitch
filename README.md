@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JaySwitch
+- 👀 I’m interested in making video games and teaching.
+- 🌱 I’m currently learning how to teach physical education but I have a passion for technology and media.
+- 💞️ I’m looking to collaborate on something in the horror genre.
+- 📫 How to reach me gamerscape6@gmail.com or Jay Switch on YouTube
